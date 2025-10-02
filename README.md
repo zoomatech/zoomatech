@@ -44,4 +44,4 @@ Some of my most advanced work is proprietary but available for review on request
 ---
 
 This profile highlights my public portfolio and points to deeper private projects. For a closer look, reach out directly.
-This is the new updatedprofile from 8:18PMOCT1
+This is the new updated profile from 8:18PMOCT1
