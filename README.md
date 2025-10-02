@@ -39,8 +39,9 @@ Some of my most advanced work is proprietary but available for review on request
 ## Connect with Me
 
 - LinkedIn: [linkedin.com/in/stevenswart](https://www.linkedin.com/in/stevenswart)  
-- Email: [stevenjswart@gmail.com](mailto:stevenjswart@gmail.com)  
+- Email: [stevenjswart@@gmail.com](mailto:stevenjswart@gmail.com)  
 
 ---
 
 This profile highlights my public portfolio and points to deeper private projects. For a closer look, reach out directly.
+This is the new updatedprofile from 8:18PMOCT1
